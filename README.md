@@ -11,3 +11,7 @@
 
 ![171_v2](https://user-images.githubusercontent.com/103221687/204706773-780bca06-63d2-4f75-ad2e-1135f647f275.png)
 
+<h2>12hr with v2</h2>
+
+![mac](https://user-images.githubusercontent.com/103221687/204924205-014a3465-4058-4a0a-8d09-1414ddd2514e.png)
+
